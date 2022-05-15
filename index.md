@@ -2,15 +2,24 @@
 
 My name is Khuloudoh Maikho, I am a 19 year old guy pursuing B.Tech. in Aerospace Engineering at IIT Bombay. I have grown up in various cities and my current permanent address is in Jaipur, but obviously I actually reside in the IIT Bombay Campus.
 
-I like sketching, listening to music, not any random music, only the ones which trigger my imagination...cinematic imagination. As a consequence, I also imagining stories, stories large enough to have their own novel. I used to draw comics when i was younger, but as I grew up my stories became larger, sketching became detailed and I no longer found time to pursue them actively. I also had a desire to teach high school Physics which was quenched by NSS IITB's Educational Outreach program. Thats how I discovered that I have a knack of teaching and even currently i would be willing to teach people the core subjects which I have understood well.
+I like sketching, listening to music, not any random music, only the ones which trigger my imagination...cinematic imagination. As a consequence, I also imagining stories, stories large enough to have their own novel. I used to draw comics when i was younger, but as I grew up my stories became larger, sketching became detailed and I no longer found time to pursue them actively. I also play video games and Minecraft is my favorite, I have many creative and cool builds which I will feature here. I also had a desire to teach high school Physics which was quenched by NSS IITB's Educational Outreach program. Thats how I discovered that I have a knack of teaching and even currently I would be willing to teach people the core subjects which I have understood well.
 
 These were all as far as my hobbies are concerned, apart from that, I like core aerospace stuff typically Spaceflight Mechanics and Structural Mechanics and would want to go into one of these subdomains in the future.
 
-## Some of my stuff
+## Some of my sketches
 ![image](The Word.png)
 
+![image](Kryptos Hept ki muskurahat.jpg)
 
+![image](kryptos hept art png.png)
 
+![image](Zeneben Homogen the visionary.png)
+
+![image](Cholrylnus art png.png)
+
+![image](Killjoy png.png)
+
+## Some of my Minecraft builds
 
 
 
