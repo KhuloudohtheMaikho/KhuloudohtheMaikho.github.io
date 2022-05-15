@@ -7,7 +7,7 @@ I like sketching, listening to music, not any random music, only the ones which 
 These were all as far as my hobbies are concerned, apart from that, I like core aerospace stuff typically Spaceflight Mechanics and Structural Mechanics and would want to go into one of these subdomains in the future.
 
 ## Some of my stuff
-[image](KhuloudohtheMaikho/KhuloudohtheMaikho.github.io/The Word.png)
+![image](KhuloudohtheMaikho/KhuloudohtheMaikho.github.io/The Word.png)
 
 
 
