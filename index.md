@@ -15,9 +15,9 @@ These were all as far as my hobbies are concerned, apart from that, I like core 
 
 ![image](Zeneben Homogen the visionary.png)
 
-![image](Cholrylnus art png.png)
+![image](Chlorylnus art png.png)
 
-![image](Killjoy png.png)
+![image](KillJoy png.png)
 
 ## Some of my Minecraft builds
 
