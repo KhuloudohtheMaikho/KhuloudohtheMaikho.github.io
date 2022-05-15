@@ -8,15 +8,10 @@ These were all as far as my hobbies are concerned, apart from that, I like core 
 
 ## Some of my sketches
 ![image](The Word.png)
-
 ![image](Kryptos Hept ki muskurahat.jpg)
-
 ![image](kryptos hept art png.png)
-
 ![image](Zeneben Homogen the visionary.png)
-
 ![image](Chlorylnus art png.png)
-
 ![image](KillJoy png.png)
 
 ## Some of my Minecraft builds
